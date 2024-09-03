@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 💙
+## boasvindas ao meu perfil 💙
 
 Meu nome é Luan Alves Ribeiro
 
